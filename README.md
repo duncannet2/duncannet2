@@ -1,2 +1,3 @@
-i know to much stuff,
-at this point i cook hard or i hardly cook. Adios this is my github
+Your local australian Java, Python and Luau Developer.
+Co-Founder and Co-Ownership at No Name Interactive.
+Tactical Mastermind and Tactical Gameplay Enjoyer
